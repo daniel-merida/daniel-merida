@@ -3,7 +3,7 @@
 
 - 📬 contact: **danieldanmerida@gmail.com**
 
-- 📄 Linkedin profile: [www.linkedin.com/in/daniel-dsmerida](www.linkedin.com/in/danieldsmerida)
+- 📄 Linkedin profile: [www.linkedin.com/in/danieldsmerida](www.linkedin.com/in/danieldsmerida)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
